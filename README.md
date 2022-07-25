@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shirozuki204
 - 👀 I’m interested in: Gaming, food, music, anime.
-- 🌱 I’m currently learning: graphic desing
+- 🌱 I’m currently learning: graphic design
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: My discord is Shirozu#5065
 
